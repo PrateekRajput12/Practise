@@ -1,5 +1,5 @@
 # Practise
 lets practise
 <br>
-Author - Prateek Rajput
+Author - Prateek (Thakur)
 
